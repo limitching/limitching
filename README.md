@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **hwc0320@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/162WMgdYsUavR56WAxhogRm-FEQQw4nRv/view?usp=sharing](https://drive.google.com/file/d/162WMgdYsUavR56WAxhogRm-FEQQw4nRv/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/162WMgdYsUavR56WAxhogRm-FEQQw4nRv/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
